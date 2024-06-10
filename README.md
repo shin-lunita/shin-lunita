@@ -40,7 +40,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│• 𝐒𝐢 𝐧𝐨 𝐦𝐞 𝐬𝐚𝐜𝐨 𝟏𝟎 𝐥𝐥𝐨𝐫𝐨.<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│• 𝐁𝐢𝐭𝐢𝐬𝐞𝐫𝐚, 𝐡𝐚𝐫𝐫𝐲𝐩𝐨𝐭𝐭𝐞𝐫𝐚, 𝐜𝐥𝐢𝐤𝐤𝐢𝐞 𝐲 𝐬𝐚𝐢𝐥𝐨𝐫 𝐡𝐚𝐬𝐭𝐚 𝐪𝐮𝐞 𝐦𝐞 𝐦𝐮𝐞𝐫𝐚.<br> 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│• 𝐥𝐞𝐧𝐠𝐮𝐚𝐣𝐞 𝐝𝐞 𝐩𝐫𝐨𝐠𝐫𝐚𝐦𝐚𝐜𝐢𝐨𝐧 𝐪𝐮𝐞 𝐬𝐞 𝐮𝐭𝐢𝐥𝐢𝐳𝐚𝐫 (𝐬𝐮𝐩𝐨𝐧𝐠𝐚𝐦𝐨𝐬): 𝐏𝐘𝐓𝐇𝐎𝐍.<br> 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│• 𝐃𝐞𝐭𝐞𝐬𝐭𝐨 𝐞𝐥 𝐢𝐧𝐯𝐢𝐞𝐫𝐧𝐨.<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│ ╰───────────╮<br>
