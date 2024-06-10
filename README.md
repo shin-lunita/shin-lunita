@@ -12,7 +12,7 @@
 &nbsp;&nbsp;<br>
 &nbsp;&nbsp;<br>
 &nbsp;&nbsp;<br>
-🪐୭𓂅[𝑰'𝒎 𝑳𝒖𝒏𝒂 𝑮𝒓𝒂𝒏𝒄𝒂𝒓𝒂]༉‧<br>
+🪐୭𓂅[ 𝑰'𝒎 𝑳𝒖𝒏𝒂 𝑮𝒓𝒂𝒏𝒄𝒂𝒓𝒂 ]༉‧<br>
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶<br>
 ✧<br>
 ⋅<br>
@@ -99,7 +99,7 @@
 &nbsp;&nbsp;<br>
 &nbsp;&nbsp;<br>
 &nbsp;&nbsp;<br>
-│ 🦉 ะ⸙;; ⭟❛⁰⁰¹ .... 𝑻𝒉𝒂𝒕 𝒊𝒔 𝒂𝒍𝒍 𝒇𝒐𝒓 𝒏𝒐𝒘 ....<br>
+│ 🦉 ะ⸙;; ⭟❛⁰⁰¹ ... 𝑻𝒉𝒂𝒕 𝒊𝒔 𝒂𝒍𝒍 𝒇𝒐𝒓 𝒏𝒐𝒘 ...<br>
 &nbsp;&nbsp;<br>
 &nbsp;&nbsp;<br>
 &nbsp;&nbsp;<br>
