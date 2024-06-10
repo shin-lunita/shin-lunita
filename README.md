@@ -176,17 +176,17 @@
  <br>
  <br>
  <br>
-⌈⇛[𝒀𝒐𝒖 𝒂𝒓𝒆 𝒄𝒖𝒓𝒓𝒆𝒏𝒕𝒍𝒚 𝒍𝒊𝒔𝒕𝒆𝒏𝒊𝒏𝒈...]⇚⌉<br>
- <br>
- <br>
- <br>
-# <a href="https://youtu.be/a5i-KdUQ47o?si=EuALElAlgLXBtTfQ">𝐍𝐄𝐗𝐓 𝐒𝐄𝐌𝐄𝐒𝐓𝐄𝐑</a> <br>
-#### 𝖻𝗒 𝖳𝗐𝖾𝗇𝗍𝗒 Ø𝗇𝖾 𝖯𝗂𝗅ø𝗍𝗌
+⌈⇛[𝒀𝒐𝒖 𝒂𝒓𝒆 𝒄𝒖𝒓𝒓𝒆𝒏𝒕𝒍𝒚 𝒍𝒊𝒔𝒕𝒆𝒏𝒊𝒏𝒈...]⇚⌉
+<br>
+<br>
+<br>
+<a href="https://youtu.be/a5i-KdUQ47o?si=EuALElAlgLXBtTfQ">𝐍𝐄𝐗𝐓 𝐒𝐄𝐌𝐄𝐒𝐓𝐄𝐑</a><br>
+𝖻𝗒 𝖳𝗐𝖾𝗇𝗍𝗒 Ø𝗇𝖾 𝖯𝗂𝗅ø𝗍𝗌 <br>
  <br>
  <br>
  <br>
 00:53 ──⊙──────── 3:54<br>
-↻&nbsp;&nbsp;&nbsp;&nbsp;◃◁  II  ▷▹&nbsp;&nbsp;&nbsp;&nbsp;⇀<br>
+↻ &nbsp; &nbsp;◃◁  II  ▷▹&nbsp; &nbsp; ⇀<br>
  <br>
  <br>
  <br>
@@ -213,8 +213,8 @@
 <img src="https://i.pinimg.com/564x/38/25/1c/38251c559eccf21ae4729fce97d62440.jpg"/><br>
 . &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;.<br>
 ────────────────────────<br>
-︶. ︶. ︶. ︶&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;︶. ︶. ︶. ︶<br>
-│✧&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;✧│<br>
+︶. ︶. ︶. ︶&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ︶. ︶. ︶. ︶<br>
+│✧&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ✧│<br>
  <br>
  <br>
  <br>
