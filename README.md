@@ -3,7 +3,7 @@
 私のプロフィールへようこそ <br>
 ─────────────────── <br>
 │││  .  .  .  . 〔🍑 ; 𝟎𝟗-𝟎𝟔-𝟐𝟒 〕<br>
-││✧      .  .  .      ↳ 𝟎𝟗:𝟒𝟎 𝐩.𝐦.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<br>
+││✧      .  .  .      ↳ 𝟎𝟗:𝟒𝟎 𝐩.𝐦.&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; <br>
  <br>
  <br>
  <br>
@@ -42,16 +42,16 @@
  <br>
  <br>
 </p>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;· ✧. ~ - ̀↳ 私の職業上のキャリア, ‘ , ❀ <br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│• 𝐒𝐨𝐲 𝐞𝐬𝐭𝐮𝐝𝐢𝐚𝐧𝐭𝐞 𝐝𝐞𝐥 𝐜𝐨𝐥𝐞𝐠𝐢𝐨 𝐃𝐢𝐯𝐢𝐧𝐚 𝐌𝐢𝐬𝐞𝐫𝐢𝐜𝐨𝐫𝐝𝐢𝐚.<br> 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│• 𝐍𝐨 𝐦𝐞 𝐠𝐮𝐬𝐭𝐚 𝐩𝐫𝐨𝐠𝐫𝐚𝐦𝐚𝐫, 𝐩𝐞𝐫𝐨 𝐭𝐨𝐝𝐨 𝐬𝐞𝐚 𝐩𝐨𝐫 𝐚𝐩𝐫𝐨𝐛𝐚𝐫 𝐞𝐥 𝐚𝐧̃𝐨.😔☝️<br> 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│• 𝐒𝐢 𝐧𝐨 𝐦𝐞 𝐬𝐚𝐜𝐨 𝟏𝟎 𝐥𝐥𝐨𝐫𝐨.<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│• 𝐋𝐞𝐧𝐠𝐮𝐚𝐣𝐞 𝐝𝐞 𝐩𝐫𝐨𝐠𝐫𝐚𝐦𝐚𝐜𝐢𝐨𝐧 𝐪𝐮𝐞 𝐬𝐞 𝐮𝐭𝐢𝐥𝐢𝐳𝐚𝐫 (𝐬𝐮𝐩𝐨𝐧𝐠𝐚𝐦𝐨𝐬): 𝐏𝐘𝐓𝐇𝐎𝐍.<br> 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;╰───────────╮<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; · ✧. ~ - ̀↳ 私の職業上のキャリア, ‘ , ❀ <br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; .·˙.·˙.·˙.·˙.·˙|│• 𝐒𝐨𝐲 𝐞𝐬𝐭𝐮𝐝𝐢𝐚𝐧𝐭𝐞 𝐝𝐞𝐥 𝐜𝐨𝐥𝐞𝐠𝐢𝐨 𝐃𝐢𝐯𝐢𝐧𝐚 𝐌𝐢𝐬𝐞𝐫𝐢𝐜𝐨𝐫𝐝𝐢𝐚.<br> 
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; .·˙.·˙.·˙.·˙.·˙|│<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; .·˙.·˙.·˙.·˙.·˙|│• 𝐍𝐨 𝐦𝐞 𝐠𝐮𝐬𝐭𝐚 𝐩𝐫𝐨𝐠𝐫𝐚𝐦𝐚𝐫, 𝐩𝐞𝐫𝐨 𝐭𝐨𝐝𝐨 𝐬𝐞𝐚 𝐩𝐨𝐫 𝐚𝐩𝐫𝐨𝐛𝐚𝐫 𝐞𝐥 𝐚𝐧̃𝐨.😔☝️<br> 
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; .·˙.·˙.·˙.·˙.·˙|│<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; .·˙.·˙.·˙.·˙.·˙|│• 𝐒𝐢 𝐧𝐨 𝐦𝐞 𝐬𝐚𝐜𝐨 𝟏𝟎 𝐥𝐥𝐨𝐫𝐨.<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; .·˙.·˙.·˙.·˙.·˙|│<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; .·˙.·˙.·˙.·˙.·˙|│• 𝐋𝐞𝐧𝐠𝐮𝐚𝐣𝐞 𝐝𝐞 𝐩𝐫𝐨𝐠𝐫𝐚𝐦𝐚𝐜𝐢𝐨𝐧 𝐪𝐮𝐞 𝐬𝐞 𝐮𝐭𝐢𝐥𝐢𝐳𝐚𝐫 (𝐬𝐮𝐩𝐨𝐧𝐠𝐚𝐦𝐨𝐬): 𝐏𝐘𝐓𝐇𝐎𝐍.<br> 
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; .·˙.·˙.·˙.·˙.·˙|│<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ╰───────────╮<br>
 <p align="center">
  <br>
  <br>
@@ -89,29 +89,29 @@
  <br>
  <br>
 </p>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;︶︶︶︶︶!ુ⩩🍂⊰ 私について ;; ༉ .˚ <br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;╭──────────╮<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; 𝐇𝐎𝐁𝐁𝐈𝐄𝐒: 𝐝𝐨𝐫𝐦𝐢𝐫, 𝐜𝐨𝐦𝐞𝐫, 𝐝𝐨𝐫𝐦𝐢𝐫 𝐨𝐭𝐫𝐚 𝐯𝐞𝐳, 𝐞𝐬𝐜𝐫𝐢𝐛𝐢𝐫 𝐡𝐢𝐬𝐭𝐨𝐫𝐢𝐚𝐬.<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; 𝐃𝐞𝐭𝐞𝐬𝐭𝐨 𝐞𝐥 𝐢𝐧𝐯𝐢𝐞𝐫𝐧𝐨. <br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; 𝐌𝐔𝐒𝐈𝐂𝐀: 𝐁𝐢𝐭𝐢𝐬𝐞𝐫𝐚, 𝐜𝐥𝐢𝐤𝐤𝐢𝐞 𝐲 𝐬𝐚𝐢𝐥𝐨𝐫 𝐡𝐚𝐬𝐭𝐚 𝐪𝐮𝐞 𝐦𝐞 𝐦𝐮𝐞𝐫𝐚.<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; 𝐀𝐬𝐩𝐢𝐫𝐚𝐧𝐭𝐞 𝐚 𝐩𝐫𝐨𝐝𝐮𝐜𝐭𝐨𝐫𝐚 𝐦𝐮𝐬𝐢𝐜𝐚𝐥 (𝐦𝐞 𝐯𝐨𝐲 𝐚 𝐦𝐨𝐫𝐢𝐫 𝐝𝐞 𝐡𝐚𝐦𝐛𝐫𝐞) 𝐲 𝐞𝐝𝐢𝐭𝐨𝐫𝐚 𝐩𝐫𝐨𝐟𝐞𝐬𝐢𝐨𝐧𝐚𝐥 𝐝𝐞 𝐯𝐢𝐝𝐞𝐨𝐬.<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; 𝐏𝐄𝐋𝐈𝐂𝐔𝐋𝐀𝐒/𝐒𝐄𝐑𝐈𝐄𝐒: 𝐡𝐚𝐫𝐫𝐲𝐩𝐨𝐭𝐭𝐞𝐫𝐚 𝐲 𝐦𝐢𝐫𝐚𝐜𝐮𝐥𝐞𝐫 (𝐧𝐨 𝐭𝐞𝐧𝐠𝐨 𝐞𝐬𝐭𝐚𝐛𝐢𝐥𝐢𝐝𝐚𝐝 𝐞𝐦𝐨𝐜𝐢𝐨𝐧𝐚𝐥), 𝐯𝐢𝐯𝐚 𝐝𝐢𝐬𝐧𝐞𝐲.<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; 𝐯𝐢𝐯𝐨 𝐚 𝐛𝐚𝐬𝐞 𝐝𝐞 𝐟𝐚𝐧𝐟𝐢𝐜𝐬 𝐜𝐫𝐞𝐚𝐝𝐨𝐬 𝐩𝐨𝐫 𝐦𝐢 (𝐞𝐬𝐭𝐨𝐲 𝐥𝐨𝐜𝐚).<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; 𝐍𝐎 🙅‍♀️ 𝐇𝐎𝐁𝐁𝐈𝐄𝐒: 𝐡𝐚𝐜𝐞𝐫 𝐭𝐚𝐫𝐞𝐚, 𝐨𝐫𝐝𝐞𝐧𝐚𝐫 𝐦𝐢 𝐡𝐚𝐛𝐢𝐭𝐚𝐜𝐢𝐨𝐧, 𝐞𝐬𝐭𝐮𝐝𝐢𝐚𝐫, 𝐩𝐫𝐨𝐠𝐫𝐚𝐦𝐚𝐫.
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;╰──────────╯<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;┊　　┊　　┊<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;┊　　┊　　┊<br>　
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;┊　　┊　　┊<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;┊　　┊　 &nbsp;&nbsp;&nbsp;✦ <br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;┊&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;☆ <br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;┊<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;☆<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; ︶︶︶︶︶!ુ⩩🍂⊰ 私について ;; ༉ .˚ <br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; ╭──────────╮<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; │🍯┊; 𝐇𝐎𝐁𝐁𝐈𝐄𝐒: 𝐝𝐨𝐫𝐦𝐢𝐫, 𝐜𝐨𝐦𝐞𝐫, 𝐝𝐨𝐫𝐦𝐢𝐫 𝐨𝐭𝐫𝐚 𝐯𝐞𝐳, 𝐞𝐬𝐜𝐫𝐢𝐛𝐢𝐫 𝐡𝐢𝐬𝐭𝐨𝐫𝐢𝐚𝐬.<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; │<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; │🍯┊; 𝐃𝐞𝐭𝐞𝐬𝐭𝐨 𝐞𝐥 𝐢𝐧𝐯𝐢𝐞𝐫𝐧𝐨. <br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; │<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; │🍯┊; 𝐌𝐔𝐒𝐈𝐂𝐀: 𝐁𝐢𝐭𝐢𝐬𝐞𝐫𝐚, 𝐜𝐥𝐢𝐤𝐤𝐢𝐞 𝐲 𝐬𝐚𝐢𝐥𝐨𝐫 𝐡𝐚𝐬𝐭𝐚 𝐪𝐮𝐞 𝐦𝐞 𝐦𝐮𝐞𝐫𝐚.<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; │<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; │🍯┊; 𝐀𝐬𝐩𝐢𝐫𝐚𝐧𝐭𝐞 𝐚 𝐩𝐫𝐨𝐝𝐮𝐜𝐭𝐨𝐫𝐚 𝐦𝐮𝐬𝐢𝐜𝐚𝐥 (𝐦𝐞 𝐯𝐨𝐲 𝐚 𝐦𝐨𝐫𝐢𝐫 𝐝𝐞 𝐡𝐚𝐦𝐛𝐫𝐞) 𝐲 𝐞𝐝𝐢𝐭𝐨𝐫𝐚 𝐩𝐫𝐨𝐟𝐞𝐬𝐢𝐨𝐧𝐚𝐥 𝐝𝐞 𝐯𝐢𝐝𝐞𝐨𝐬.<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; │<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; │🍯┊; 𝐏𝐄𝐋𝐈𝐂𝐔𝐋𝐀𝐒/𝐒𝐄𝐑𝐈𝐄𝐒: 𝐡𝐚𝐫𝐫𝐲𝐩𝐨𝐭𝐭𝐞𝐫𝐚 𝐲 𝐦𝐢𝐫𝐚𝐜𝐮𝐥𝐞𝐫 (𝐧𝐨 𝐭𝐞𝐧𝐠𝐨 𝐞𝐬𝐭𝐚𝐛𝐢𝐥𝐢𝐝𝐚𝐝 𝐞𝐦𝐨𝐜𝐢𝐨𝐧𝐚𝐥), 𝐯𝐢𝐯𝐚 𝐝𝐢𝐬𝐧𝐞𝐲.<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; │<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; │🍯┊; 𝐯𝐢𝐯𝐨 𝐚 𝐛𝐚𝐬𝐞 𝐝𝐞 𝐟𝐚𝐧𝐟𝐢𝐜𝐬 𝐜𝐫𝐞𝐚𝐝𝐨𝐬 𝐩𝐨𝐫 𝐦𝐢 (𝐞𝐬𝐭𝐨𝐲 𝐥𝐨𝐜𝐚).<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; │<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; │🍯┊; 𝐍𝐎 🙅‍♀️ 𝐇𝐎𝐁𝐁𝐈𝐄𝐒: 𝐡𝐚𝐜𝐞𝐫 𝐭𝐚𝐫𝐞𝐚, 𝐨𝐫𝐝𝐞𝐧𝐚𝐫 𝐦𝐢 𝐡𝐚𝐛𝐢𝐭𝐚𝐜𝐢𝐨𝐧, 𝐞𝐬𝐭𝐮𝐝𝐢𝐚𝐫, 𝐩𝐫𝐨𝐠𝐫𝐚𝐦𝐚𝐫. <br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; ╰──────────╯<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; ┊　　┊　　┊<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; ┊　　┊　　┊<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; ┊　　┊　　┊<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; ┊　　┊　 &nbsp;&nbsp;&nbsp;✦ <br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; ┊&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;☆ <br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; ┊<br>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp &nbsp; ☆<br>
  <br>
  <br>
  <br>
@@ -185,7 +185,7 @@
 <br>
 <br>
 <a href="https://youtu.be/a5i-KdUQ47o?si=EuALElAlgLXBtTfQ">𝐍𝐄𝐗𝐓 𝐒𝐄𝐌𝐄𝐒𝐓𝐄𝐑</a><br>
-𝖻𝗒 𝖳𝗐𝖾𝗇𝗍𝗒 Ø𝗇𝖾 𝖯𝗂𝗅ø𝗍𝗌 <br>
+𝖻𝗒 𝖳𝗐𝖾𝗇𝗍𝗒 Ø𝗇𝖾 𝖯𝗂𝗅ø𝗍𝗌<br>
  <br>
  <br>
  <br>
