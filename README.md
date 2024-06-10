@@ -1,7 +1,7 @@
 <p align="center">
 <img src="https://github.com/shin-lunita/wiii/assets/171997364/1be9da02-2440-4fb1-a7b0-e15b507d914a"/> <br>
-私のプロフィールへようこそ<br>
-───────────────────<br>
+私のプロフィールへようこそ <br>
+─────────────────── <br>
 │││  .  .  .  . 〔🍑 ; 𝟎𝟗-𝟎𝟔-𝟐𝟒 〕<br>
 ││✧      .  .  .      ↳ 𝟎𝟗:𝟒𝟎 𝐩.𝐦.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<br>
  <br>
@@ -180,8 +180,8 @@
  <br>
  <br>
  <br>
-<a href="https://youtu.be/a5i-KdUQ47o?si=EuALElAlgLXBtTfQ">𝐍𝐄𝐗𝐓 𝐒𝐄𝐌𝐄𝐒𝐓𝐄𝐑</a> <br>
-𝖻𝗒 𝖳𝗐𝖾𝗇𝗍𝗒 Ø𝗇𝖾 𝖯𝗂𝗅ø𝗍𝗌<br>
+# <a href="https://youtu.be/a5i-KdUQ47o?si=EuALElAlgLXBtTfQ">𝐍𝐄𝐗𝐓 𝐒𝐄𝐌𝐄𝐒𝐓𝐄𝐑</a> <br>
+#### 𝖻𝗒 𝖳𝗐𝖾𝗇𝗍𝗒 Ø𝗇𝖾 𝖯𝗂𝗅ø𝗍𝗌
  <br>
  <br>
  <br>
