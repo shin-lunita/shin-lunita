@@ -80,17 +80,19 @@
 </p>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;︶︶︶︶︶!ુ⩩🍂⊰ 私について ;; ༉ .˚ <br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;╭──────────╮<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; <br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; 𝐇𝐎𝐁𝐁𝐈𝐄𝐒: 𝐝𝐨𝐫𝐦𝐢𝐫, 𝐜𝐨𝐦𝐞𝐫, 𝐝𝐨𝐫𝐦𝐢𝐫 𝐨𝐭𝐫𝐚 𝐯𝐞𝐳, 𝐞𝐬𝐜𝐫𝐢𝐛𝐢𝐫 𝐡𝐢𝐬𝐭𝐨𝐫𝐢𝐚𝐬.<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; <br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; 𝐃𝐞𝐭𝐞𝐬𝐭𝐨 𝐞𝐥 𝐢𝐧𝐯𝐢𝐞𝐫𝐧𝐨. <br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; <br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; 𝐌𝐔𝐒𝐈𝐂𝐀: 𝐁𝐢𝐭𝐢𝐬𝐞𝐫𝐚, 𝐜𝐥𝐢𝐤𝐤𝐢𝐞 𝐲 𝐬𝐚𝐢𝐥𝐨𝐫 𝐡𝐚𝐬𝐭𝐚 𝐪𝐮𝐞 𝐦𝐞 𝐦𝐮𝐞𝐫𝐚.<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; <br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; 𝐀𝐬𝐩𝐢𝐫𝐚𝐧𝐭𝐞 𝐚 𝐩𝐫𝐨𝐝𝐮𝐜𝐭𝐨𝐫𝐚 𝐦𝐮𝐬𝐢𝐜𝐚𝐥 (𝐦𝐞 𝐯𝐨𝐲 𝐚 𝐦𝐨𝐫𝐢𝐫 𝐝𝐞 𝐡𝐚𝐦𝐛𝐫𝐞) 𝐲 𝐞𝐝𝐢𝐭𝐨𝐫𝐚 𝐩𝐫𝐨𝐟𝐞𝐬𝐢𝐨𝐧𝐚𝐥 𝐝𝐞 𝐯𝐢𝐝𝐞𝐨𝐬.<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; <br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; 𝐏𝐄𝐋𝐈𝐂𝐔𝐋𝐀𝐒/𝐒𝐄𝐑𝐈𝐄𝐒: 𝐡𝐚𝐫𝐫𝐲𝐩𝐨𝐭𝐭𝐞𝐫𝐚 𝐲 𝐦𝐢𝐫𝐚𝐜𝐮𝐥𝐞𝐫 (𝐧𝐨 𝐭𝐞𝐧𝐠𝐨 𝐞𝐬𝐭𝐚𝐛𝐢𝐥𝐢𝐝𝐚𝐝 𝐞𝐦𝐨𝐜𝐢𝐨𝐧𝐚𝐥), 𝐯𝐢𝐯𝐚 𝐝𝐢𝐬𝐧𝐞𝐲.<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; <br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; 𝐯𝐢𝐯𝐨 𝐚 𝐛𝐚𝐬𝐞 𝐝𝐞 𝐟𝐚𝐧𝐟𝐢𝐜𝐬 𝐜𝐫𝐞𝐚𝐝𝐨𝐬 𝐩𝐨𝐫 𝐦𝐢 (𝐞𝐬𝐭𝐨𝐲 𝐥𝐨𝐜𝐚).<br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│<br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;│🍯┊; 𝐍𝐎 🙅‍♀️ 𝐇𝐎𝐁𝐁𝐈𝐄𝐒: 𝐡𝐚𝐜𝐞𝐫 𝐭𝐚𝐫𝐞𝐚, 𝐨𝐫𝐝𝐞𝐧𝐚𝐫 𝐦𝐢 𝐡𝐚𝐛𝐢𝐭𝐚𝐜𝐢𝐨𝐧, 𝐞𝐬𝐭𝐮𝐝𝐢𝐚𝐫, 𝐩𝐫𝐨𝐠𝐫𝐚𝐦𝐚𝐫.
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;╰──────────╯<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;┊　　┊　　┊<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;┊　　┊　　┊<br>　
