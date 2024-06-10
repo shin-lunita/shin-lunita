@@ -70,7 +70,7 @@
  <br>
  <br>
 ❛ ⌒ ⌒ ⌒ ⌒ ⌒ : :❀: : ⌒ ⌒ ⌒ ⌒ ⌒ ❜ <br>
-<img src="https://kr.pinterest.com/pin/589479038752216068/"/> <br>
+<img src="https://i.pinimg.com/564x/d4/cc/2e/d4cc2edf7eda491d97d0306bd976dc9e.jpg"/> <br>
  ❛ ⌒ ⌒ ⌒ ⌒ ⌒ : :❀: : ⌒ ⌒ ⌒ ⌒ ⌒ ❜ <br>
  <br>
  <br>
@@ -146,7 +146,7 @@
  <br>
  <br>
 〨&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; 〨 <br>
-<img src="https://kr.pinterest.com/pin/163185186491069322/"/> <br>
+<img src="https://i.pinimg.com/564x/7b/52/40/7b52405ea7cb1fd772c7392d512e01b3.jpg"/> <br>
 〨&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; 〨 <br>
  <br>
  <br>
