@@ -3,7 +3,7 @@
 私のプロフィールへようこそ<br>
 ───────────────────<br>
 │││  .  .  .  . 〔🍑 ; 𝟎𝟗-𝟎𝟔-𝟐𝟒 〕<br>
-││✧      .  .  .      ↳ 𝟎𝟗:𝟒𝟎 𝐩.𝐦.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<br>
+││✧      .  .  .      ↳ 𝟎𝟗:𝟒𝟎 𝐩.𝐦.&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<br>
  <br>
  <br>
  <br>
@@ -179,8 +179,8 @@
  <br>
  <br>
  <br>
-<span style="font-size: 32px;">𝐍𝐄𝐗𝐓 𝐒𝐄𝐌𝐄𝐒𝐓𝐄𝐑</span> <br>
-##𝖻𝗒 𝖳𝗐𝖾𝗇𝗍𝗒 Ø𝗇𝖾 𝖯𝗂𝗅ø𝗍𝗌<br>
+𝐍𝐄𝐗𝐓 𝐒𝐄𝐌𝐄𝐒𝐓𝐄𝐑 <br>
+𝖻𝗒 𝖳𝗐𝖾𝗇𝗍𝗒 Ø𝗇𝖾 𝖯𝗂𝗅ø𝗍𝗌<br>
  <br>
  <br>
  <br>
