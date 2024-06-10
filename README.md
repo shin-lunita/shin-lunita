@@ -20,7 +20,7 @@
  <br>
  <br>
  <br>
-🪐୭𓂅[ 𝑰'𝒎 𝑳𝒖𝒏𝒂 𝑮𝒓𝒂𝒏𝒄𝒂𝒓𝒂 ]༉‧<br>
+[🪐](https://www.instagram.com/little.moonie._?igsh=c2MxaWp4Z2kwbnkw) ୭𓂅[ 𝑰'𝒎 𝑳𝒖𝒏𝒂 𝑮𝒓𝒂𝒏𝒄𝒂𝒓𝒂 ]༉‧<br>
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶<br>
 ✧<br>
 ⋅<br>
@@ -179,7 +179,7 @@
  <br>
  <br>
  <br>
-𝐍𝐄𝐗𝐓 𝐒𝐄𝐌𝐄𝐒𝐓𝐄𝐑 <br>
+[𝐍𝐄𝐗𝐓 𝐒𝐄𝐌𝐄𝐒𝐓𝐄𝐑](https://youtu.be/a5i-KdUQ47o?si=EuALElAlgLXBtTfQ) <br>
 𝖻𝗒 𝖳𝗐𝖾𝗇𝗍𝗒 Ø𝗇𝖾 𝖯𝗂𝗅ø𝗍𝗌<br>
  <br>
  <br>
