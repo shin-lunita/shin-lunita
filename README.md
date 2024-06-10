@@ -4,34 +4,34 @@
 ───────────────────<br>
 │││  .  .  .  . 〔🍑 ; 𝟎𝟗-𝟎𝟔-𝟐𝟒 〕<br>
 ││✧      .  .  .      ↳ 𝟎𝟗:𝟒𝟎 pm&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
 🪐୭𓂅[ 𝑰'𝒎 𝑳𝒖𝒏𝒂 𝑮𝒓𝒂𝒏𝒄𝒂𝒓𝒂 ]༉‧<br>
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶<br>
 ✧<br>
 ⋅<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
 </p>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;· ✧. ~ - ̗̀↳ 私の職業上のキャリア, ‘ , ❀ <br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│• 𝐒𝐨𝐲 𝐞𝐬𝐭𝐮𝐝𝐢𝐚𝐧𝐭𝐞 𝐝𝐞𝐥 𝐜𝐨𝐥𝐞𝐠𝐢𝐨 𝐃𝐢𝐯𝐢𝐧𝐚 𝐌𝐢𝐬𝐞𝐫𝐢𝐜𝐨𝐫𝐝𝐢𝐚.<br> 
@@ -44,39 +44,39 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;╰───────────╮<br>
 <p align="center">
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
 ❛ ⌒ ⌒ ⌒ ⌒ ⌒ : :❀: : ⌒ ⌒ ⌒ ⌒ ⌒ ❜ <br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
 </p>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;︶︶︶︶︶!ુ⩩🍂⊰ 私について ;; ༉ .˚ <br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;╭──────────╮<br>
@@ -99,115 +99,115 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;┊&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;☆ <br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;┊<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;☆<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
 <p align="center">
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
 〨&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; -&nbsp; 〨
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
 ⌈⇛[𝒀𝒐𝒖 𝒂𝒓𝒆 𝒄𝒖𝒓𝒓𝒆𝒏𝒕𝒍𝒚 𝒍𝒊𝒔𝒕𝒆𝒏𝒊𝒏𝒈...]⇚⌉<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
+ <br>
+ <br>
+ <br>
 <span style="font-size: 32px;">𝐍𝐄𝐗𝐓 𝐒𝐄𝐌𝐄𝐒𝐓𝐄𝐑</span> <br>
-𝖻𝗒 𝖳𝗐𝖾𝗇𝗍𝗒 Ø𝗇𝖾 𝖯𝗂𝗅ø𝗍𝗌<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
+##𝖻𝗒 𝖳𝗐𝖾𝗇𝗍𝗒 Ø𝗇𝖾 𝖯𝗂𝗅ø𝗍𝗌<br>
+ <br>
+ <br>
+ <br>
 00:53 ──⊙──────── 3:54<br>
 ↻&nbsp;&nbsp;&nbsp;&nbsp;◃◁  II  ▷▹&nbsp;&nbsp;&nbsp;&nbsp;⇀<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
 │ 🦉 ะ⸙;; ⭟❛⁰⁰¹ ... 𝑻𝒉𝒂𝒕 𝒊𝒔 𝒂𝒍𝒍 𝒇𝒐𝒓 𝒏𝒐𝒘 ...<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
 [༊];── 𝕊ℍ𝕀ℕ 𝕃𝕌ℕ𝕀𝕋𝔸 𝕤𝕒𝕪𝕤: 🐾 : 𝙂𝙤𝙤𝙙𝙗𝙮𝙚...<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
+ <br>
+ <br>
+ <br>
 <img src="https://i.pinimg.com/564x/38/25/1c/38251c559eccf21ae4729fce97d62440.jpg"/><br>
-.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.<br>
+. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;.<br>
 ────────────────────────<br>
-︶. ︶. ︶.︶&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;︶. ︶. ︶.<br>
+︶. ︶. ︶. ︶&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;︶. ︶. ︶. ︶<br>
 │✧&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;✧│<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
-&nbsp;&nbsp;<br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
 </p>
