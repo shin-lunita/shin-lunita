@@ -3,7 +3,15 @@
 私のプロフィールへようこそ<br>
 ───────────────────<br>
 │││  .  .  .  . 〔🍑 ; 𝟎𝟗-𝟎𝟔-𝟐𝟒 〕<br>
-││✧      .  .  .      ↳ 𝟎𝟗:𝟒𝟎 pm&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<br>
+││✧      .  .  .      ↳ 𝟎𝟗:𝟒𝟎 𝐩.𝐦.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
+ <br>
  <br>
  <br>
  <br>
