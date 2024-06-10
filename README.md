@@ -20,7 +20,7 @@
  <br>
  <br>
  <br>
-[🪐](https://www.instagram.com/little.moonie._?igsh=c2MxaWp4Z2kwbnkw) ୭𓂅[ 𝑰'𝒎 𝑳𝒖𝒏𝒂 𝑮𝒓𝒂𝒏𝒄𝒂𝒓𝒂 ]༉‧<br>
+[🪐] (https://www.instagram.com/little.moonie._?igsh=c2MxaWp4Z2kwbnkw) ୭𓂅[ 𝑰'𝒎 𝑳𝒖𝒏𝒂 𝑮𝒓𝒂𝒏𝒄𝒂𝒓𝒂 ]༉‧<br>
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶<br>
 ✧<br>
 ⋅<br>
@@ -41,7 +41,7 @@
  <br>
  <br>
 </p>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;· ✧. ~ - ̗̀↳ 私の職業上のキャリア, ‘ , ❀ <br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;· ✧. ~ - ̀↳ 私の職業上のキャリア, ‘ , ❀ <br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│• 𝐒𝐨𝐲 𝐞𝐬𝐭𝐮𝐝𝐢𝐚𝐧𝐭𝐞 𝐝𝐞𝐥 𝐜𝐨𝐥𝐞𝐠𝐢𝐨 𝐃𝐢𝐯𝐢𝐧𝐚 𝐌𝐢𝐬𝐞𝐫𝐢𝐜𝐨𝐫𝐝𝐢𝐚.<br> 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;.·˙.·˙.·˙.·˙.·˙|│• 𝐍𝐨 𝐦𝐞 𝐠𝐮𝐬𝐭𝐚 𝐩𝐫𝐨𝐠𝐫𝐚𝐦𝐚𝐫, 𝐩𝐞𝐫𝐨 𝐭𝐨𝐝𝐨 𝐬𝐞𝐚 𝐩𝐨𝐫 𝐚𝐩𝐫𝐨𝐛𝐚𝐫 𝐞𝐥 𝐚𝐧̃𝐨.😔☝️<br> 
