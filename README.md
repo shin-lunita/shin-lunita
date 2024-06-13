@@ -20,7 +20,7 @@
  <br>
  <br>
  <br>
-<H2> <a href="https://www.instagram.com/little.moonie._?igsh=c2MxaWp4Z2kwbnkw">🪐</a> ୭𓂅[ 𝑰'𝒎 𝑳𝒖𝒏𝒂 𝑮𝒓𝒂𝒏𝒄𝒂𝒓𝒂 ]༉‧</H2> <br> 
+<a href="https://www.instagram.com/little.moonie._?igsh=c2MxaWp4Z2kwbnkw">🪐</a> ୭𓂅[ 𝑰'𝒎 𝑳𝒖𝒏𝒂 𝑮𝒓𝒂𝒏𝒄𝒂𝒓𝒂 ]༉ • <br> 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶<br> 
 ✧<br>
 ⋅<br>
@@ -209,7 +209,7 @@
  <br>
  <br>
  <br>
-[༊];── 𝕊ℍ𝕀ℕ 𝕃𝕌ℕ𝕀𝕋𝔸 𝕤𝕒𝕪𝕤: 🐾 : 𝙂𝙤𝙤𝙙𝙗𝙮𝙚...<br>
+<H3> [༊];── 𝕊ℍ𝕀ℕ 𝕃𝕌ℕ𝕀𝕋𝔸 𝕤𝕒𝕪𝕤: 🐾 : 𝙂𝙤𝙤𝙙𝙗𝙮𝙚...</H3> <br>
  <br>
  <br>
  <br>
