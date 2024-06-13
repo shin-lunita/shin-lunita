@@ -209,13 +209,12 @@
  <br>
  <br>
  <br>
-<H3> [༊];── 𝕊ℍ𝕀ℕ 𝕃𝕌ℕ𝕀𝕋𝔸 𝕤𝕒𝕪𝕤: 🐾 : 𝙂𝙤𝙤𝙙𝙗𝙮𝙚...</H3> <br>
-<p align="center">
+[༊];── 𝕊ℍ𝕀ℕ 𝕃𝕌ℕ𝕀𝕋𝔸 𝕤𝕒𝕪𝕤: 🐾 : 𝙂𝙤𝙤𝙙𝙗𝙮𝙚...<br>
  <br>
  <br>
  <br>
 <img src="https://i.pinimg.com/564x/38/25/1c/38251c559eccf21ae4729fce97d62440.jpg"/><br>
-. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp;.<br>
+. &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;. &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;.<br>
 ────────────────────────────────<br>
 ︶. ︶. ︶. ︶&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ︶. ︶. ︶. ︶<br>
 │✧&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ✧│<br>
